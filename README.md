@@ -1,2 +1,0 @@
-# WGTIK_2021
-TugasWGTIK
